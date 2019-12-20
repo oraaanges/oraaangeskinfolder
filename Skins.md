@@ -18,7 +18,7 @@
 ## [- Mathi](https://drive.google.com/file/d/1qAKNRRdOx0I8Uoou3RP8gLDfGInGu6zs/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/GQ4xMgR.jpg)
 
-## [- Aristia](https://drive.google.com/file/d/1w0-23LSUUXdpmapsTN1lbBVJFW69iRjt/view?usp=sharing) 
+## [- Aristia](https://drive.google.com/file/d/1-_3yK8mXMmdHsVkxruIp71HH1XMMUcDr/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/ZuESlfp.jpg)
 
 ## [- Rafis](https://drive.google.com/file/d/1XYyBem7nzhluCMGol8wQuDi5GZSOiHY7/view?usp=sharing) 
@@ -29,3 +29,6 @@
 
 ## [- Metanoia](https://drive.google.com/file/d/1sxcARDl4IJKschPmSHlLygpzRNq-mwSw/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/MyRrola.jpg)
+
+## [- azr8dawn](https://drive.google.com/file/d/1MhyCD8k7NqA40NomzB-UZoSEKfgWznva/view?usp=sharing) 
+![Imgur Image](https://imgur.com/xH5nnbf.jpg)
