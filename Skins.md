@@ -1,5 +1,16 @@
 # I will try my best to keep this up to date :)
-In order of most frequently used
+- up to date as of 5/5/20
+## [- he rack](https://drive.google.com/file/d/1uMhq6VAdhlIPPC9OGivlvKW-TyQhTlw0/view?usp=sharing)
+![Imgur Image](https://imgur.com/GpGYgvT.jpg)
+
+## [- Bubbleman](https://drive.google.com/file/d/19LlCZZbtmw5RM3xNwJoc_a0O0FxeuwTz/view?usp=sharing)
+![Imgur Image](https://imgur.com/NMTBw4s.jpg)
+
+## [- Millhiore Edit](https://drive.google.com/file/d/1TYQL6AIAjvKxeDnClZUwKV2O0LhsaUiP/view?usp=sharing)
+![Imgur Image](https://imgur.com/O8HhZWg.jpg)
+
+## [- SameSkinButNoRingHitCirclesWeirdName](https://drive.google.com/file/d/1rtXyf3FHFCJSsceMX8pyqI3ssQPLUKuM/view?usp=sharing)
+![Imgur Image](https://imgur.com/9szhLYU.jpg)
 
 ## [- MonkoMetanoia](https://drive.google.com/file/d/1t2c7OvSDxaEpVQ27enk9qLCuC0RGYvc3/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/dL91GjE.jpg)
@@ -18,9 +29,6 @@ In order of most frequently used
 
 ## [- MonkoYaong v2](https://drive.google.com/file/d/1OngpwDjop5WM1iFsAad5D2L93W6LRCD-/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/Vl6gpkh.jpg)
-
-## [- Metanoia](https://drive.google.com/file/d/1sxcARDl4IJKschPmSHlLygpzRNq-mwSw/view?usp=sharing) 
-![Imgur Image](https://imgur.com/MyRrola.jpg)
 
 ## [- azr8dawn](https://drive.google.com/file/d/1MhyCD8k7NqA40NomzB-UZoSEKfgWznva/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/xH5nnbf.jpg)
