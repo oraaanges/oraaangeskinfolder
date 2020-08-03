@@ -1,5 +1,11 @@
 # I will try my best to keep this up to date :)
-- up to date as of 5/5/20
+- up to date as of 8/2/20
+## [- Dumii+Azerite](https://drive.google.com/file/d/1uSbmMx7vXmM6W3xoB6HeOrgGyR3iEKJR/view?usp=sharing)
+![Imgur Image](https://imgur.com/XpopDP2.jpg)
+
+## [- Aristia](https://drive.google.com/file/d/1-_3yK8mXMmdHsVkxruIp71HH1XMMUcDr/view?usp=sharing) 
+![Imgur Image](https://imgur.com/ZuESlfp.jpg)
+
 ## [- he rack](https://drive.google.com/file/d/1uMhq6VAdhlIPPC9OGivlvKW-TyQhTlw0/view?usp=sharing)
 ![Imgur Image](https://imgur.com/GpGYgvT.jpg)
 
@@ -32,9 +38,6 @@
 
 ## [- azr8dawn](https://drive.google.com/file/d/1MhyCD8k7NqA40NomzB-UZoSEKfgWznva/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/xH5nnbf.jpg)
-
-## [- Aristia](https://drive.google.com/file/d/1-_3yK8mXMmdHsVkxruIp71HH1XMMUcDr/view?usp=sharing) 
-![Imgur Image](https://imgur.com/ZuESlfp.jpg)
 
 ## [- oraaanges 3.0](https://drive.google.com/file/d/1ltq6dEf5GNLs6pW3m_WMY548i9OdlQnm/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/6T21f76.jpg)
