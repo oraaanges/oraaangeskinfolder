@@ -3,7 +3,7 @@
 ## [- Dumii+Azerite](https://drive.google.com/file/d/1uSbmMx7vXmM6W3xoB6HeOrgGyR3iEKJR/view?usp=sharing)
 ![Imgur Image](https://imgur.com/XpopDP2.jpg)
 
-## [- Aristia](https://drive.google.com/file/d/1-_3yK8mXMmdHsVkxruIp71HH1XMMUcDr/view?usp=sharing) 
+## [- Aristia](https://drive.google.com/file/d/1lDwj1t8FYxpkQ6_5GyEEysGlijTyeBjD/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/ZuESlfp.jpg)
 
 ## [- he rack](https://drive.google.com/file/d/1uMhq6VAdhlIPPC9OGivlvKW-TyQhTlw0/view?usp=sharing)
