@@ -1,19 +1,12 @@
 # I will try my best to keep this up to date :)
 - up to date as of 1/13/21
-## [- Aristia](https://drive.google.com/file/d/1orH8yzi1rTEEuzGr3VDkbNMd6beMHcQO/view?usp=sharing)
-![Imgur Image](https://imgur.com/7p17god.jpg) This is my main skin
-
-## [- Aristia+tournament](https://drive.google.com/file/d/1knGnNtjezPk53hvet-v5pO5XEGsOOO9Z/view?usp=sharing) 
-![Imgur Image](https://imgur.com/7p17god.jpg) Same as above but hidden overlay for tournaments, removed smoke
+## [- Aristia](https://drive.google.com/file/d/1o-t2dyczWvJL-7htr_LAyufsKTvdKtXv/view?usp=sharing)
+![Imgur Image](https://imgur.com/7p17god.jpg) Main skin, tournament element included, extra cursors added
 
 ## [- LuckDOTexe](https://drive.google.com/file/d/1ICbKn-ibr-iitjRi23nKY-alcZGPvgyp/view?usp=sharing) 
 ![Imgur Image](https://imgur.com/9B07D93.jpg) Current EZ skin
 
-## [- Rafis](https://drive.google.com/file/d/1XYyBem7nzhluCMGol8wQuDi5GZSOiHY7/view?usp=sharing) 
-![Imgur Image](https://imgur.com/yWljHcL.jpg) Main DT skin
-
-
-## [- theez](https://drive.google.com/file/d/1x-WP9zbokww2zs5fwC54TWHh9Lqf62XS/view?usp=sharing) 
-![Imgur Image](https://imgur.com/UrGe8IG.jpg) 
+## [- Seoul](https://drive.google.com/file/d/1WeHfyiW7L2zD2Ap3pwUlRH95XDuniHd4/view?usp=sharing) 
+![Imgur Image](https://imgur.com/xxLqrRy.jpg) 
 
 
