@@ -1,5 +1,5 @@
 # I will try my best to keep this up to date :)
-- up to date as of 1/13/21
+- up to date as of 3/8/21
 ## [- Aristia](https://drive.google.com/file/d/1o-t2dyczWvJL-7htr_LAyufsKTvdKtXv/view?usp=sharing)
 ![Imgur Image](https://imgur.com/7p17god.jpg) Main skin, tournament element included, extra cursors added
 
