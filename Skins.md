@@ -1,8 +1,5 @@
 # I will try my best to keep this up to date :)
-- up to date as of 12/21/21
-
-## [- Suisei](https://drive.google.com/file/d/1GDBRV2gzURxXMLWmL8Xxg-5tZLnVxET5/view?usp=sharing)
-![Imgur Image](https://imgur.com/ME89g7P.jpg) Skin from [this reddit post](https://www.reddit.com/r/OsuSkins/comments/r8oemk/d_hoshimachi_suisei_stellar_into_the_galaxy/). Edited for file size/playability etc.
+- up to date as of April 6, 2022
 
 ## [- Aristia](https://drive.google.com/file/d/1o-t2dyczWvJL-7htr_LAyufsKTvdKtXv/view)
 ![Imgur Image](https://imgur.com/7p17god.jpg)
