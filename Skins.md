@@ -1,8 +1,8 @@
 # I will try my best to keep this up to date :)
-- up to date as of April 6, 2022
+- up to date as of Jan 11, 2023
 
-## [- Aristia](https://drive.google.com/file/d/1o-t2dyczWvJL-7htr_LAyufsKTvdKtXv/view)
-![Imgur Image](https://imgur.com/7p17god.jpg)
+## [- Aristia Edit](https://drive.google.com/file/d/1Bxj9CSJr3o9cvShNjKjB8sD0yovZRHxR/view)
+![Imgur Image](https://imgur.com/7p17god.jpg) *mejiro mcqueen edit pic not updated*
 
 ## [- Shield](https://drive.google.com/file/d/1lluh-sODyZjd4Ii67ZkDozR98omxOair/view) 
 ![Imgur Image](https://imgur.com/MH2YdFQ.jpg) 
